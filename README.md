@@ -10,3 +10,8 @@ https://www.intelligenceonline.fr/tags/ockham-solutions
 
 https://overpass-turbo.eu/
 
+## IA/LLM ##
+
+https://chat.z.ai/
+
+
