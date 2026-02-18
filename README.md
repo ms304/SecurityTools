@@ -22,4 +22,12 @@ https://agentgpt.reworkd.ai
 
 https://cobalt.tools
 
+## TECH OSINT ##
 
+https://shodan.io
+
+https://censys.io
+
+https://zoomeye.org
+
+https//fofa.info
