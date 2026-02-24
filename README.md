@@ -35,3 +35,7 @@ https//fofa.info
 ## FINANCE ##
 
 https://cryptopanic.com/
+
+https://bitcointrader2022.blogspot.com
+
+https://pricemechanics.blogspot.com
