@@ -39,3 +39,8 @@ https://cryptopanic.com/
 https://bitcointrader2022.blogspot.com
 
 https://pricemechanics.blogspot.com
+
+## TIKTOK ##
+
+https://urlebird.com/fr/search/?q=xauusd
+
